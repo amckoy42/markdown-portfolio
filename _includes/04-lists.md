@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+### Stuff I Enjoy
+- Video Games
+- Dancing
+- Pretty much anything STEM outside of biology
+- Yeah I guess that's it...
